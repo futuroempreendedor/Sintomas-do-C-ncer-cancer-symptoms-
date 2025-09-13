@@ -28,8 +28,4 @@ Outros sintomas incluem alterações no funcionamento do intestino e da bexiga, 
 O reconhecimento precoce dos sintomas é essencial para que o câncer seja detectado em fases iniciais, quando as chances de cura são muito maiores. Por isso, é fundamental manter atenção ao corpo, realizar exames preventivos regularmente e procurar ajuda profissional diante de qualquer sinal suspeito.
 
 
----
-
-👉 Quer que eu organize esse texto em tópicos esquematizados (mapa mental ou lista de sintomas por tipo de câncer) para ficar mais fácil de estudar ou apresentar?
-
 
